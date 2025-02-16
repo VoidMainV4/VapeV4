@@ -15,7 +15,6 @@
 [Discord](https://discord.gg/cpna4z66ny)
 <br/>
 [Youtube](https://youtube.com/c/7GrandDadVape) - original owner
-[Mimi's Youtube](https://www.youtube.com/@MimiCheats) - me!
 
 ## Usage
 1. Download the specific scripting utility of your choice.
