@@ -12,7 +12,6 @@
 </h2>
 
 ## Contacts
-[Discord](https://discord.gg/cpna4z66ny)
 <br/>
 [Youtube](https://youtube.com/c/7GrandDadVape) - original owner
 
